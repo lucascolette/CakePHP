@@ -1,0 +1,1 @@
+Obrigado, sua inscrição foi realizada com sucesso
